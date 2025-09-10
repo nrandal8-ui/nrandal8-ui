@@ -11,6 +11,5 @@
 - 📫 How to reach me: **[Email](nicolerandall75@gmail.com)**
 - 📫 How to reach me: **[LinkedIn](https://www.linkedin.com/in/nicole-randall78)**  
 - 😄 Pronouns: **She/Her**
-- 😄 Pronouns: **She/Her**
 
 
