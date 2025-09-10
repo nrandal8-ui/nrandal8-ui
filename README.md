@@ -13,3 +13,4 @@
 - 😄 Pronouns: **She/Her**
 
 
+![GitHub stats](https://github-readme-stats.vercel.app/api?username=nrandal8-ui&show_icons=true&theme=radical)
