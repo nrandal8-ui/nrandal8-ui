@@ -8,7 +8,9 @@
 - 🤝 I’m looking to collaborate on **UI/UX design projects, skating curriculum development, and youth empowerment programs**  
 - 🤔 I’m looking for help with **building my online learning platform and connecting with mentors in digital design**  
 - 💬 Ask me about **roller skating, creative design systems, and how to turn your passions into a business**  
-- 📫 How to reach me: **[Email](nicolerandall75@gmail.com)**  
+- 📫 How to reach me: **[Email](nicolerandall75@gmail.com)**
+- 📫 How to reach me: **[LinkedIn](https://www.linkedin.com/in/nicole-thibodaux-)**  
+- 😄 Pronouns: **She/Her**
 - 😄 Pronouns: **She/Her**
 
 
